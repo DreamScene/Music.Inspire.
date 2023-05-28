@@ -20,3 +20,10 @@
 
 [Cody Study Ambience](https://www.youtube.com/@CodyStudy)
 - [25/5 Pomodoro Timer - Relaxing Music with Rain Sound, Deep Focus , Study With Me, Stay Motivated](https://youtu.be/LMHLXNPWhlM)
+
+[the lofi van](https://www.youtube.com/@thelofivan)
+- [escape to the bookstore. 📚 lofi hip hop/ chill beats. [study/ sleep/ relax]](https://youtu.be/Ar18V8jaZzY)
+
+[Lofi Zen](https://www.youtube.com/@LofiZen2)
+- [Lofi HipHop/Chill/Study/Relaxing Beats #43](https://youtu.be/gGBItu65snE)
+- [Lofi HipHop/Chill/Study/Relaxing Beats #44](https://youtu.be/PhDjukNr9hU)
