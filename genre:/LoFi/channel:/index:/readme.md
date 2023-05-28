@@ -5,6 +5,7 @@
 [Cozy Nordic](https://www.youtube.com/channel/UCKpA7cdEo6CL-Jcqhso2ZaQ)
 - [nordic home office ~ chill lofi beats](https://youtu.be/c3suauAz0zQ)
 - [a rainy afternoon in sweden ~ nordic lofi mix](https://youtu.be/-EY97tZAkNY)
+- [a rainy evening in malmö ~ nordic lofi mix](https://youtu.be/9pSjmD5YYe8)
 
 [Cosmic Lofi](https://www.youtube.com/@Cosmic_Composure)
 - [Relaxing Lofi Music to Help You Study, Concentrate and Unwind 😌 Study | Meditation | Chill](https://youtu.be/ti2Q9CpDbG8)
@@ -27,3 +28,6 @@
 [Lofi Zen](https://www.youtube.com/@LofiZen2)
 - [Lofi HipHop/Chill/Study/Relaxing Beats #43](https://youtu.be/gGBItu65snE)
 - [Lofi HipHop/Chill/Study/Relaxing Beats #44](https://youtu.be/PhDjukNr9hU)
+
+[Lofi Cove](https://www.youtube.com/@Lofi-Cove)
+- [Chill Lofi Beats for a Relaxing Rainy Night | Lofi Cove](https://youtu.be/fsQC7n35v4s)
