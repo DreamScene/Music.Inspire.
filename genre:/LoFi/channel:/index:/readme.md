@@ -31,3 +31,6 @@
 
 [Lofi Cove](https://www.youtube.com/@Lofi-Cove)
 - [Chill Lofi Beats for a Relaxing Rainy Night | Lofi Cove](https://youtu.be/fsQC7n35v4s)
+
+[Lofi Chillhop Music](https://www.youtube.com/@lofichillhopmusicofficial)
+- [6 A.M Study Session 📚 - [lofi hip hop/chill beats]](https://youtu.be/OPy1kimqOV4)
