@@ -34,3 +34,10 @@
 
 [Lofi Chillhop Music](https://www.youtube.com/@lofichillhopmusicofficial)
 - [6 A.M Study Session 📚 - [lofi hip hop/chill beats]](https://youtu.be/OPy1kimqOV4)
+
+[](url)
+- [CARIBBEAN Sea Vibes 🌊 Lofi Relax Your Mind [chill lo-fi hip hop beats]](https://youtu.be/N0WwxyjrzsM)
+
+[](url)
+- [Fuji Vibes 🌄 let's lofi calm your anxiety | Japanese lofi hip hop beats for relax, study and chill](https://youtu.be/rqWDo_6FZ_M)
+- [Summer Lofi Vibes ☀ let's summer lofi calm your mind | lofi hip hop beats for relax, study and chill](https://youtu.be/z1FFR815vWc)
